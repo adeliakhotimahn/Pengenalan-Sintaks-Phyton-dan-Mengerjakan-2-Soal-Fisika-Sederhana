@@ -1,0 +1,1 @@
+# Pengenalan-Sintaks-Phyton-dan-Mengerjakan-2-Soal-Fisika-Sederhana
